@@ -1,2 +1,3 @@
-# Deliverance_case
-A Prayer for supernatural deliverance
+# **Deliverance prayer**  
+Prayer point on supernatural deliverance for year 2025  
+## **PRAYER POINTS**  
